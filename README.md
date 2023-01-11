@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ej168
-- 👀 I’m interested in CRUSHING RUSSIA
-- 🌱 I’m currently learning HOW TO STEAL A RUSSIAN TANK
-- 💞️ I’m looking to collaborate on CRUSHING RUSSIA
+- 👀 I’m interested in SCHOOL FIREWALLS
+- 🌱 I’m currently learning HOW TO TROLL SCHOOLS
+- 💞️ I’m looking to collaborate on GETTING AROUND SCHOOL FIREWALL
 - 📫 How to reach me DONT
 
 <!---
